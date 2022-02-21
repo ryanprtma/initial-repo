@@ -1,2 +1,3 @@
-Hi Saya Ryan
-Saya dari palembang
+Hi Saya Aldi 
+Saya berasal dari NTT
+
